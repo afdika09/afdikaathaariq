@@ -1,0 +1,2 @@
+# afdikaathaariq
+Bacod.id
